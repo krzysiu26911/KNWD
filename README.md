@@ -1,0 +1,2 @@
+# KNWD
+Koło naukowe
